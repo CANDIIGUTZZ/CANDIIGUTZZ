@@ -1,13 +1,17 @@
 ##   
 
-   ![Alt Text](https://64.media.tumblr.com/84d35fd40674dafec43caaadbd463e1e/5cc203144d14f86c-81/s1280x1920/d445b229e2e41a79daf3dafbd06bc3214b2a8137.pnj) 
- 
-󠁪󠁪 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⨳ 󠁪  $${\color{C83670} ＞＞\ 🅂ᵁᴺᴰᴬᴱ \ }$$
+  
+![Alt Text](https://64.media.tumblr.com/101574add8bf44ec0f7268a849af74d7/73fc1670dd57674e-58/s2048x3072/5948ab7c68c24a4fab7e612ccbe71e949207b8ed.gif)
+
+
+
+󠁪󠁪 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⨳ 󠁪  $${\color{C83670} wip \ .  }$$
   愛
 
    ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⟡ [╥‸╥](showtimesareonthehour.atabook.org) 
 
-   ![Alt Text](https://64.media.tumblr.com/db41f6aad8ad533ed12c23c4df82777f/d15dcc8098054f78-be/s100x200/554a5e3095445cab1846912ed32473fe9b9fc319.gif)
+   [![Alt Text](https://64.media.tumblr.com/c918ba35868a8bd2a5f58192cc2cea3a/73fc1670dd57674e-e3/s2048x3072/67cf96ce9f3a56808c6e58412b12d820d289cd5a.pnj)](https://www.tumblr.com/fwishmael)
+
 
    caution: still working on!
 
