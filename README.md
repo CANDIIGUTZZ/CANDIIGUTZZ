@@ -1,23 +1,9 @@
 ##   
 
   
-![Alt Text](https://64.media.tumblr.com/101574add8bf44ec0f7268a849af74d7/73fc1670dd57674e-58/s2048x3072/5948ab7c68c24a4fab7e612ccbe71e949207b8ed.gif)
+![Alt Text](https://64.media.tumblr.com/d97bdf81a7d18cbc9d9a9dc8ad0918ee/391911b77ea644cf-03/s1280x1920/a90bec5dc53ace7c3f6a494a05d0f5a161d80505.pnj)
+
+wip
 
 
-
-󠁪󠁪 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⨳ 󠁪  $${\color{C83670} wip \ .  }$$
-  󠁪󠁪 ⠀ 
-󠁪󠁪 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀  **S**undae .  **M**angle  .  **D**ae
-
-   ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  [╥‸╥] $${\color{C83670} Int  }$$  freely please!   ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀
-   ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀   ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀      i act different online n irl + i block freely
-
-
-   [![Alt Text](https://64.media.tumblr.com/c918ba35868a8bd2a5f58192cc2cea3a/73fc1670dd57674e-e3/s2048x3072/67cf96ce9f3a56808c6e58412b12d820d289cd5a.pnj)](https://www.tumblr.com/fwishmael)
-
-
-   caution: still working on!
-
-
-   
               
