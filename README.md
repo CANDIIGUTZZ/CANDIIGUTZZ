@@ -1,5 +1,7 @@
-![Alt Text](https://64.media.tumblr.com/7c0707a19ef886ccafd318740145cccf/873f0e78b884bc84-a0/s1280x1920/d477164ec8d024ae0eed92e8fb71618ff768533f.pnj)
+
 ##   
+![Alt Text](https://64.media.tumblr.com/7d88aef712d69925165f197cd8f784de/53333f61af485e11-0d/s500x750/ac3580ad950e6fad05b8bb738debe51467bcd990.gif)![Alt Text](https://64.media.tumblr.com/7d88aef712d69925165f197cd8f784de/53333f61af485e11-0d/s500x750/ac3580ad950e6fad05b8bb738debe51467bcd990.gif)
+
 ![Alt Text](https://64.media.tumblr.com/f955a2f41eb725450752a87d48bc849e/079d4b49a39de027-0b/s2048x3072/2424556485e4cc7cb53acb2b9cd36bed58fa4fbe.pnj)
 wowzas! wip
   
@@ -13,9 +15,8 @@ ggrr
   </details>
   hmm wip.
 
-  
 
-
+![Alt Text](https://64.media.tumblr.com/7d88aef712d69925165f197cd8f784de/53333f61af485e11-0d/s500x750/ac3580ad950e6fad05b8bb738debe51467bcd990.gif)![Alt Text](https://64.media.tumblr.com/7d88aef712d69925165f197cd8f784de/53333f61af485e11-0d/s500x750/ac3580ad950e6fad05b8bb738debe51467bcd990.gif)
 
 
               
