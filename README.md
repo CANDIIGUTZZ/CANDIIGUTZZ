@@ -15,7 +15,8 @@ ggrr
 this bcs working on carrd, and also sp is kinda outdated so yeaa
 
   </details>
-  hmm wip.
+
+  [rentry](https://rentry.co/rockstarbonnieirl)
 
 
 ![Alt Text](https://64.media.tumblr.com/7d88aef712d69925165f197cd8f784de/53333f61af485e11-0d/s500x750/ac3580ad950e6fad05b8bb738debe51467bcd990.gif)![Alt Text](https://64.media.tumblr.com/7d88aef712d69925165f197cd8f784de/53333f61af485e11-0d/s500x750/ac3580ad950e6fad05b8bb738debe51467bcd990.gif)
